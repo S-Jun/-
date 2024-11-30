@@ -28,7 +28,8 @@
 ---------
 **조조할인과 일반**
 
-![다운로드 (7)](https://github.com/user-attachments/assets/2b4ae8a5-2636-43dd-90f4-bc7ded8fd953)
+![다운로드 (7)](https://github.com/user-attachments/assets/272415b8-d658-4cbd-81a6-7c91b99bc602)
+
 
 
 
